@@ -1,4 +1,5 @@
-[![MasterHead](https://s6.ezgif.com/tmp/ezgif-6b41aad032e6b.gif)](https://github.com/Pene-Tester)
+[![MasterHead](https://github.com/user-attachments/assets/9a515f39-64c7-443d-9e14-6def757ec332)](https://github.com/Pene-Tester)
+
 
 ## 🌐 Socials:
 [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/https://www.facebook.com/john.pavel.33046) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/luijie4w) 
